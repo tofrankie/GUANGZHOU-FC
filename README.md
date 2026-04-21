@@ -18,3 +18,5 @@
 - [17 赛季广州恒大淘宝 47 场赛事](https://tieba.baidu.com/p/5462333150?pn=1)
 - [恒大海报大全](https://tieba.baidu.com/p/3154147105?pn=1)
 - [广州恒大 2014 海报高清壁纸下载](http://www.qqbizhi.com/desk/tiyu/2543.html)
+- [广州队刊](https://gzfc.org/)
+- [官方 Instagram](https://www.instagram.com/guangzhou_evergrande/)
